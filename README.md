@@ -1,2 +1,2 @@
-# B-y-kanimasy
+# Buyukanımasy
 …
